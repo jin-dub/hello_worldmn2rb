@@ -1,1 +1,0 @@
-# hello_worldmn2rb
